@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LQzViwtJJWfNJdrrP69G5zbk2rfmRH7m/view?usp=drive_link](https://drive.google.com/file/d/1LQzViwtJJWfNJdrrP69G5zbk2rfmRH7m/view?usp=drive_link)
 
-- ⚡ Fun fact **Love to play Table Tennis 🏓**
+- ⚡ Fun fact **Love to code and play Table Tennis 🏓**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
